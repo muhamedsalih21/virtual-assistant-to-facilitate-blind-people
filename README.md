@@ -1,0 +1,1 @@
+# virtual-assistant-to-facilitate-blind-people
